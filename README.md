@@ -26,8 +26,8 @@ Registered in British Columbia, Canada (BC1550607)
 📧 omidreza.aliahmadi@gmail.com  
 
 ## 🔗 Useful Links
-- [Official LinkedIn](https://www.linkedin.com/in/omidreza-aliahmadi/)  
-- [Kolabtree Profile](YOUR_KOLABTREE_LINK_HERE)  
+- [LinkedIn](https://www.linkedin.com/in/omidreza-aliahmadi-85553651/)  
+- [Kolabtree Profile](https://www.kolabtree.com/find-an-expert/o.107134/)  
 - [ORCID iD](https://orcid.org/0009-0008-6437-5457)  
 
 ---
